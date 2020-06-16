@@ -17,3 +17,7 @@ _**Teambuilding and learning skills till the end of time**_
 #### Because of her passion for programming
 #### She studied and studied and used a lot of her energy
 #### That made her feel very tired and weak
+
+#### passion and devotion is important
+#### and maybe a little bit of luck 
+#### Luckily there was still healthy food over
